@@ -5,7 +5,7 @@
 
 - 📫 How to reach me **spoorthyr.6d5@gmail.com**
 
-<h3 align="left">Connect with me:</h3>
+
 <p align="left">
 </p>
 
